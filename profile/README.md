@@ -129,3 +129,5 @@ Build a legacy by saving wealth and assets for your next generation. Heirlooms p
 BitLife offers an engaging and endlessly entertaining experience where players can explore diverse life paths and outcomes. Whether you dream of becoming a billionaire, a famous musician, or a notorious criminal, BitLife provides the tools to make it happen.  
 
 The game’s charm lies in its unpredictability and freedom of choice, making every playthrough a unique story. So dive into the world of BitLife and see where your decisions take you—your perfect life is just a tap away!
+
+bitlife unblocked !
